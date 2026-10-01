@@ -21,3 +21,4 @@
 3. Arrume algumas folhas de jambu por cima.
 4. Distribua os camarões secos.
 5. Complete com mais tucupi quente até cobrir
+6. max reação
